@@ -6,3 +6,4 @@
 # 🏐🎮🎸
 ### ⓣⓔⓝⓗⓞ ①⑤ ⓐⓝⓞⓢ
 ### 𝓮 𝓼𝓸𝓾 𝓪𝓹𝓪𝓲𝔁𝓸𝓷𝓪𝓭𝓪 𝓮𝓶 𝓭𝓮𝓼𝓮𝓷𝓱𝓸
+https://media.tenor.com/zVvViQKqa0MAAAAj/psybirdb1oom.gif
